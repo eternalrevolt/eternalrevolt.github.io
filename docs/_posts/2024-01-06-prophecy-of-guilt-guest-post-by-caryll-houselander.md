@@ -1,6 +1,6 @@
 ---
 id: 793
-title: 'Prophecy of /"Guilt/": Guest Post by Caryll Houselander'
+title: 'Prophecy of _Guilt_: Guest Post by Caryll Houselander'
 date: '2024-01-06T14:32:10-05:00'
 author: 'Paul Nowak'
 layout: post
@@ -17,10 +17,10 @@ tags:
 
 ---
 
-**Everyone who fails to realize and to come face to face with the enemy in himself will always seek and always find an enemy outside of himself.**
- _-Caryll Houselander_
+>Everyone who fails to realize and to come face to face with the enemy in himself will always seek and always find an enemy outside of himself.
+> _-Caryll Houselander_
 
-</figure>Of all the attempts to escape personal responsibility for the suffering of the world and for individual guilt, none is so dangerous as the loss of their own individuality which countless people seek by identifying themselves with a group: One of the most persistent miseries that sin has imposed upon men is a sense of personal insufficiency. This has become more than ever acute in our own days, because of the huge tidal waves of fear that are sweeping through the world, filling the individual with dread because of his helplessness in the face of gathering disaster.
+Of all the attempts to escape personal responsibility for the suffering of the world and for individual guilt, none is so dangerous as the loss of their own individuality which countless people seek by identifying themselves with a group: One of the most persistent miseries that sin has imposed upon men is a sense of personal insufficiency. This has become more than ever acute in our own days, because of the huge tidal waves of fear that are sweeping through the world, filling the individual with dread because of his helplessness in the face of gathering disaster.
 
 His plight is more terrible because in his flight from guilt he has lost sight of, or perhaps never seen, how to save himself, and with himself his fellow men, from what he dreads. Because he is afraid to look into his own soul, lit up by the searching beam of the Uncreated Light, he does not realize that the enemy is within himself. Only in himself can he come to grips with the evil which threatens to destroy humanity. He is afraid to look inwards, and so he is aware of little but that which is outside of himself. He is aware that the threatening tide of evil is always gathering strength, but not that its relentless and seemingly uncontrollable force is streaming out of his own heart.
 
@@ -45,18 +45,15 @@ As the devil driven out of the maniac was liberated in the Gadarene swine and se
 We have seen this illustrated in the tragedy of Germany. German youth, smarting under the humiliation following the war of 1914—demoralized and depressed—was a ready prey to the Nazi ideology. Lost in the new exhilaration, identified to the point of insanity with the rightness of the Cause and the idolatry of the Fuehrer, not one of those young men and women was aware of the evil within themselves.
 
 >The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves.
-> 
-> _CARYLL HOUSELANDER_
 
->As the blonde Hans, with the blue eyes and face of an angel and the slight smell of carbolic soap, swung along the streets in his S.S. uniform, exulting in the sacrifice of his personality to the Cause, the forgotten evil in his own soul, uncontested, waxed stronger and more furious. Straining at the chains that were already breaking, crouching in the darkness, the beast was ready to spring.
+As the blonde Hans, with the blue eyes and face of an angel and the slight smell of carbolic soap, swung along the streets in his S.S. uniform, exulting in the sacrifice of his personality to the Cause, the forgotten evil in his own soul, uncontested, waxed stronger and more furious. Straining at the chains that were already breaking, crouching in the darkness, the beast was ready to spring.
 
 But the beast was not alone. The multitudinous evil in the millions was secretly united in an immeasurable force of destruction, waiting for the signal to break out into the open and plunge the world into a sea of blood.
 
 The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves. This is Jung’s description of Hitler and his relationship to his people:
 
 > “With the rest of the world they did not understand what Hitler’s significance was: namely, that he was a symbol of every individual: he was the most prodigious personification of all human inferiorities. He was a highly incapable, unadapted, irresponsible, psychopathic individual, full of empty childish fantasies, but cursed with the keen intuition of a rat or guttersnipe. He represented the shadow, the inferior part of everybody’s personality, in an overwhelming degree—and this is another reason why they fell for him.”
-> 
-> <cite>-C. G. Jung, *The Fight with the Shadow*</cite>
+> _-C. G. Jung, *The Fight with the Shadow*_
 
 It was that intuition of the “rat or guttersnipe” that warned Hitler that the wild beasts leashed in the darkness were already too thirsty for blood to be held back until the moment for the devastation of Europe, and impelled him to let them loose upon the Jews in Germany.
 
@@ -66,11 +63,9 @@ First of all and most dangerous of all, we too repudiate “the Shadow”; we re
 
 They did what we are doing; instead of fighting the evil in themselves and so preventing the collective force of evil from gathering, they escaped into the complacency and the false security of identification with a group—not that rightful tendency to associate with others, grounded in man’s nature as a social being, whereby the individual personality is enriched, but a fleeing from the burden of being oneself.
 
-<figure class="wp-block-pullquote alignleft">> Religious people form themselves into groups in which, through over-activity that is often “much ado about nothing,” and the feeling that they belong to a great and vital force of righteousness with a mission to lead and dominate others, they lose the feeling of personal guilt and of insufficiency.
-> 
-> <cite>CARYLL HOUSELANDER</cite>
+>Religious people form themselves into groups in which, through over-activity that is often “much ado about nothing,” and the feeling that they belong to a great and vital force of righteousness with a mission to lead and dominate others, they lose the feeling of personal guilt and of insufficiency.
 
-</figure>Right through every stratum of society this tendency prevails here. Men and women hand themselves over willingly to be crowded together and controlled by forces outside themselves in industry; they lose sight of their helplessness before-the rising tide of want and poverty. They even allow their pleasure to be organized for them, and herd together in huge groups to spend their holidays in camps, where every hour of the day is arranged for them.
+Right through every stratum of society this tendency prevails here. Men and women hand themselves over willingly to be crowded together and controlled by forces outside themselves in industry; they lose sight of their helplessness before-the rising tide of want and poverty. They even allow their pleasure to be organized for them, and herd together in huge groups to spend their holidays in camps, where every hour of the day is arranged for them.
 
 Religious people form themselves into groups in which, through over-activity that is often “much ado about nothing,” and the feeling that they belong to a great and vital force of righteousness with a mission to lead and dominate others, they lose the feeling of personal guilt and of insufficiency.
 
