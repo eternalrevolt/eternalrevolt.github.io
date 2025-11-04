@@ -1,6 +1,6 @@
 ---
 id: 793
-title: 'Prophecy of &#8220;Guilt&#8221; &#8211; Guest Post by Caryll Houselander'
+title: 'Prophecy of /"Guilt/": Guest Post by Caryll Houselander'
 date: '2024-01-06T14:32:10-05:00'
 author: 'Paul Nowak'
 layout: post
@@ -17,9 +17,8 @@ tags:
 
 ---
 
-<figure class="wp-block-pullquote">> Everyone who fails to realize and to come face to face with the enemy in himself will always seek and always find an enemy outside of himself.
-> 
-> <cite>Caryll Houselander</cite>
+**Everyone who fails to realize and to come face to face with the enemy in himself will always seek and always find an enemy outside of himself.**
+ _-Caryll Houselander_
 
 </figure>Of all the attempts to escape personal responsibility for the suffering of the world and for individual guilt, none is so dangerous as the loss of their own individuality which countless people seek by identifying themselves with a group: One of the most persistent miseries that sin has imposed upon men is a sense of personal insufficiency. This has become more than ever acute in our own days, because of the huge tidal waves of fear that are sweeping through the world, filling the individual with dread because of his helplessness in the face of gathering disaster.
 
@@ -45,11 +44,11 @@ As the devil driven out of the maniac was liberated in the Gadarene swine and se
 
 We have seen this illustrated in the tragedy of Germany. German youth, smarting under the humiliation following the war of 1914—demoralized and depressed—was a ready prey to the Nazi ideology. Lost in the new exhilaration, identified to the point of insanity with the rightness of the Cause and the idolatry of the Fuehrer, not one of those young men and women was aware of the evil within themselves.
 
-<figure class="wp-block-pullquote alignright">> The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves.
+>The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves.
 > 
-> <cite>CARYLL HOUSELANDER</cite>
+> _CARYLL HOUSELANDER_
 
-</figure>As the blonde Hans, with the blue eyes and face of an angel and the slight smell of carbolic soap, swung along the streets in his S.S. uniform, exulting in the sacrifice of his personality to the Cause, the forgotten evil in his own soul, uncontested, waxed stronger and more furious. Straining at the chains that were already breaking, crouching in the darkness, the beast was ready to spring.
+>As the blonde Hans, with the blue eyes and face of an angel and the slight smell of carbolic soap, swung along the streets in his S.S. uniform, exulting in the sacrifice of his personality to the Cause, the forgotten evil in his own soul, uncontested, waxed stronger and more furious. Straining at the chains that were already breaking, crouching in the darkness, the beast was ready to spring.
 
 But the beast was not alone. The multitudinous evil in the millions was secretly united in an immeasurable force of destruction, waiting for the signal to break out into the open and plunge the world into a sea of blood.
 
