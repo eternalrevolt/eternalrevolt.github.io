@@ -1,6 +1,6 @@
 ---
 id: 793
-title: 'Prophecy of _Guilt_: Guest Post by Caryll Houselander'
+title: 'Prophecy of "Guilt": Guest Post by Caryll Houselander'
 date: '2024-01-06T14:32:10-05:00'
 author: 'Paul Nowak'
 layout: post
@@ -18,6 +18,7 @@ tags:
 ---
 
 >Everyone who fails to realize and to come face to face with the enemy in himself will always seek and always find an enemy outside of himself.
+>
 > _-Caryll Houselander_
 
 Of all the attempts to escape personal responsibility for the suffering of the world and for individual guilt, none is so dangerous as the loss of their own individuality which countless people seek by identifying themselves with a group: One of the most persistent miseries that sin has imposed upon men is a sense of personal insufficiency. This has become more than ever acute in our own days, because of the huge tidal waves of fear that are sweeping through the world, filling the individual with dread because of his helplessness in the face of gathering disaster.
@@ -44,8 +45,6 @@ As the devil driven out of the maniac was liberated in the Gadarene swine and se
 
 We have seen this illustrated in the tragedy of Germany. German youth, smarting under the humiliation following the war of 1914—demoralized and depressed—was a ready prey to the Nazi ideology. Lost in the new exhilaration, identified to the point of insanity with the rightness of the Cause and the idolatry of the Fuehrer, not one of those young men and women was aware of the evil within themselves.
 
->The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves.
-
 As the blonde Hans, with the blue eyes and face of an angel and the slight smell of carbolic soap, swung along the streets in his S.S. uniform, exulting in the sacrifice of his personality to the Cause, the forgotten evil in his own soul, uncontested, waxed stronger and more furious. Straining at the chains that were already breaking, crouching in the darkness, the beast was ready to spring.
 
 But the beast was not alone. The multitudinous evil in the millions was secretly united in an immeasurable force of destruction, waiting for the signal to break out into the open and plunge the world into a sea of blood.
@@ -53,7 +52,8 @@ But the beast was not alone. The multitudinous evil in the millions was secretly
 The signal came from Hitler, because he was the most inferior and most irresponsible of them all. He was not the leader or the oppressor of the German people, but the expression of everything that was worst in them, which they were repressing in themselves. This is Jung’s description of Hitler and his relationship to his people:
 
 > “With the rest of the world they did not understand what Hitler’s significance was: namely, that he was a symbol of every individual: he was the most prodigious personification of all human inferiorities. He was a highly incapable, unadapted, irresponsible, psychopathic individual, full of empty childish fantasies, but cursed with the keen intuition of a rat or guttersnipe. He represented the shadow, the inferior part of everybody’s personality, in an overwhelming degree—and this is another reason why they fell for him.”
-> _-C. G. Jung, *The Fight with the Shadow*_
+>
+> _-C. G. Jung, "The Fight with the Shadow"_
 
 It was that intuition of the “rat or guttersnipe” that warned Hitler that the wild beasts leashed in the darkness were already too thirsty for blood to be held back until the moment for the devastation of Europe, and impelled him to let them loose upon the Jews in Germany.
 
@@ -62,8 +62,6 @@ What happened to the Germans yesterday may happen to us tomorrow. We are creatin
 First of all and most dangerous of all, we too repudiate “the Shadow”; we refuse to see that in each one of us, just below the brittle surface of consciousness, there is a “Beast of Belsen.” We prefer to think that those who committed outrages of cruelty on human beings in Belsen, Auschwitz, Lublin, Mauthausen and Ravensbriick were abnormal people, monsters suffering from some congenital psychopathic enormity; but this is not so. The most revealing finding at the trials of the “war criminals” was that they were, with very few exceptions, sane, normal people, people like you and me.
 
 They did what we are doing; instead of fighting the evil in themselves and so preventing the collective force of evil from gathering, they escaped into the complacency and the false security of identification with a group—not that rightful tendency to associate with others, grounded in man’s nature as a social being, whereby the individual personality is enriched, but a fleeing from the burden of being oneself.
-
->Religious people form themselves into groups in which, through over-activity that is often “much ado about nothing,” and the feeling that they belong to a great and vital force of righteousness with a mission to lead and dominate others, they lose the feeling of personal guilt and of insufficiency.
 
 Right through every stratum of society this tendency prevails here. Men and women hand themselves over willingly to be crowded together and controlled by forces outside themselves in industry; they lose sight of their helplessness before-the rising tide of want and poverty. They even allow their pleasure to be organized for them, and herd together in huge groups to spend their holidays in camps, where every hour of the day is arranged for them.
 
