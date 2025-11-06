@@ -1,6 +1,6 @@
 ---
 id: 383
-title: 'It's Not For You'
+title: 'It\'s Not For You'
 date: '2014-06-19T10:00:53-04:00'
 author: 'Paul Nowak'
 layout: post
