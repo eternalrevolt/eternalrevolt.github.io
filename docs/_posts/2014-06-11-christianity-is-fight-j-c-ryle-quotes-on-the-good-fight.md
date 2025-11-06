@@ -1,6 +1,6 @@
 ---
 id: 368
-title: 'Christianity is a Fight &#8211; J.C. Ryle Quotes on the Good Fight'
+title: 'Christianity is a Fight: J.C. Ryle Quotes on the Good Fight'
 date: '2014-06-11T10:00:48-04:00'
 author: 'Paul Nowak'
 layout: post

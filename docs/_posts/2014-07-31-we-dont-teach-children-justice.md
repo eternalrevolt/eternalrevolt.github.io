@@ -1,6 +1,6 @@
 ---
 id: 466
-title: 'We Don&#8217;t Teach Children Justice'
+title: We Don't Teach Children Justice
 date: '2014-07-31T10:00:05-04:00'
 author: 'Paul Nowak'
 layout: post

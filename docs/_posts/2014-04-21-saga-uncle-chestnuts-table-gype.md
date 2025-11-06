@@ -1,6 +1,6 @@
 ---
 id: 260
-title: 'The Saga of Uncle Chestnut&#8217;s Table Gype'
+title: The Saga of Uncle Chestnut's Table Gype
 date: '2014-04-21T10:00:30-04:00'
 author: 'Paul Nowak'
 layout: post

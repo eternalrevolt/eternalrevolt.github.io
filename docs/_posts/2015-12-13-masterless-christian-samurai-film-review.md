@@ -1,6 +1,6 @@
 ---
 id: 650
-title: 'Masterless &#8211; Christian Samurai Film Review'
+title: 'Masterless: Christian Samurai Film Review'
 date: '2015-12-13T14:31:12-05:00'
 author: 'Paul Nowak'
 layout: post

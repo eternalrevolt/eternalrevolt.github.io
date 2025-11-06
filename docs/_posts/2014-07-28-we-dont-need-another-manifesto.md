@@ -1,6 +1,6 @@
 ---
 id: 446
-title: 'We Don&#8217;t Need Another Manifesto'
+title: We Don't Need Another Manifesto
 date: '2014-07-28T18:21:50-04:00'
 author: 'Paul Nowak'
 layout: post

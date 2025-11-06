@@ -1,6 +1,6 @@
 ---
 id: 619
-title: '3 Prophetic Warnings From America&#8217;s Founding Fathers That Have Gone Unheeded'
+title: 3 Prophetic Warnings From America's Founding Fathers That Have Gone Unheeded
 date: '2015-07-03T18:20:28-04:00'
 author: 'Paul Nowak'
 layout: post
