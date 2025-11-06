@@ -1,6 +1,6 @@
 ---
 id: 108
-title: Sacrifice of Lent: More than Giving Up Good Stuff
+title: 'Sacrifice of Lent: More than Giving Up Good Stuff'
 date: '2014-03-03T10:00:17-05:00'
 author: 'Paul Nowak'
 layout: post
