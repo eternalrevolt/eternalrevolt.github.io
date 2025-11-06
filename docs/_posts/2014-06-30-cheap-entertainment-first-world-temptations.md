@@ -1,0 +1,26 @@
+---
+id: 396
+title: 'Cheap Entertainment: First World Temptations?'
+date: '2014-06-30T10:00:57-04:00'
+author: 'Paul Nowak'
+layout: post
+guid: 'http://eternalrevolution.com/?p=396'
+permalink: /cheap-entertainment-first-world-temptations/
+
+categories:
+    - Faith
+tags:
+    - media
+    - movies
+    - simplicity
+    - tv
+    - 'video games'
+---
+
+One of many popular memes these days is the "First World Problems." A frustrating issue for a particular minor problem that frustrates someone in our modern society that really is pathetically irrelevant to most people in the world. [For the visually inclined, these are usually delivered on a graphic of a woman crying](http://www.mememaker.net/browse/template/?t=89&order=top). Some examples would be: "Went to the store, they were out of organic apples," or, "Want to go to the store, but its raining," or, "Got iPhone for Christmas, but it was only a 4S." You probably get the idea. For most of the billions of people in the world, these are not problems, but complaints from spoiled people. Hence the laughable nature of the "First World Problem." The sad fact is people let such problems ruin their day, or throw full-fledged tantrums - even adults - over the hassle and disappointment. Not only do we have superfluous "problems" in the modern world, we have detractors from the spiritual life that would have been unheard of a few generations ago, and that would boggle the mind of other who happen to live in other, less developed countries. 
+
+As I write this, the minimum wage in the U.S. is $7.25. A month of Netflix is $7.99. A month of Amazon Prime (with streaming movies, free ebooks, and free MP3s) is $8.25 per month. For less than an hour and a half of work, you can have more movies and television shows than you could possible watch in a month - possibly even a year - without neglecting work, sleep, and everything else in life. Binge watching and Netflix marathons are becoming a regular topic online. Just a few years ago, TV and movie marathons were occasional program events conducted by theaters or networks, or a family activity that would cost $5 per movie at Blockbuster. Now you can do it every weekend and evening, for the cost of less than 2 hours of labor. The video game community has experienced this too. 
+
+Several years ago, I used to flip video games from Gamestop, buying rare games during "Buy 2 Get 1 Free" sales and selling them on Amazon. On the online communities that tracked those and other sales, the term "backlog" became common, and members would post pictures of dozens, even hundreds of unopened video games they had purchased dirt cheap but did not yet have time to play. Today, Humble Bundles, Steam Sales, and other digital distribution channels for PC and mobile games have made the backlog a reality for even the most casual of gamers. This week Steam is wrapping up one of two major seasonal sales where top-tier games that were $60 last year are sold for as little as $5. Message boards around the internet are full of people bemoaning how much they spent on the sale, and how many hundreds, or *thousands*, of unplayed games still reside in their digital libraries. [In the last nine years, costs for entertainment have plummeted, even has costs of necessities have risen. ](http://www.nytimes.com/2014/05/01/business/economy/changed-life-of-the-poor-squeak-by-and-buy-a-lot.html?_r=0) Even the most impoverished in America can have all the media they can consume, and still not afford food or housing. Is not spending $8 on Netflix really going to buy you much more food? It will, however, help you forget your troubles and is a tremendous value. If Bill Watterson (creator of Calvin & Hobbes) was correct and TV, not religion, is the [opiate of the masses](https://www.flickr.com/photos/93878419@N00/96808416/), what does it mean now that it is cheaper and more accessible than ever? To make matters worse, a recent study has found that[ just two hours a day of television is enough to reduce the life expectancy of a person](http://www.forbes.com/sites/alicegwalton/2014/06/26/too-much-tv-may-be-linked-to-early-death-in-young-adults/), especially young adults. 
+
+The spiritual life, too, suffers under the burden of so much cheap and free entertainment. It is all too easy to fill the silence and downtime in your life with shows, movies, and video games than prayer. It is too easy to sedate yourself with entertainment than to acknowledge and do something about the needs of others in your community - or in your own home. The saints and mystics had little no idea of this (although Teresea of Avila, a 16th century mystic, nun, and Catholic saint prophesied that "a little black box" would destroy the family). People today with no access to the Internet do not bear the burden of this "First World Temptation." You cannot fight what you do not first identify as something working against you. The next step is to do something about it. Disturb us, Lord. [Pray for Revolution](http://eternalrevolution.com/pray-revolution/ "Pray for Revolution").

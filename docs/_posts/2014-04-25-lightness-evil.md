@@ -1,0 +1,19 @@
+---
+id: 267
+title: 'The Lightness of Evil'
+date: '2014-04-25T10:00:55-04:00'
+author: 'Paul Nowak'
+layout: post
+guid: 'http://eternalrevolution.com/?p=267'
+permalink: /lightness-evil/
+
+categories:
+    - Faith
+tags:
+    - evil
+    - politics
+---
+
+A colleague of mine recently wrote me and told me he appreciated the good vs evil theme of my work. Which got me thinking. I never could get into the horror of H.P. Lovecraft. The idea of a great and terrible ancient god, with a mighty tentacled head, rising out of the sea, worshiped by thousands of deranged cultists driven insane... It all strikes me as terribly amateurish. Not on Lovecraft's part, but on Cthulhu's, Yog-Sothoth's, and the rest of the elder gods. They completely lack subtlety. How I wish evil were so apparent, so obvious, so grossly disfigured and so hauntingly wrong. But it isn't. It presents itself as dazzlingly beautiful and familiar. Easy. Simple. Peaceful. The history of Eternal Revolution - that is, this tiny effort of mine, is full of starts and stops, radical changes. I wish it wasn't, I wish it was more consistent. I've merely explained it in the past as personal issues, a common euphemism. But my erratic publishing schedule reflects the real Eternal Revolution well - a constant struggle against the crushing pressure of real evil. The kind that smiles at you as it throttles you. The kind that in the name of peace slowly destroys you. The evil that uses misdirection to point out that the world has gone wrong, that evil things are happening 'out there' while it lurks in your own home. In your family.
+
+ I don't know why exactly, but my Facebook feed keeps bringing up Lovecraft and Thomas Kincade. [Some articles](http://voidmanufacturing.wordpress.com/2008/09/03/the-madness-of-thomas-kincade/) keep [getting cited](http://www.ncregister.com/blog/simcha-fisher/whats-so-bad-about-thomas-kinkade) about the freakishness of his peaceful paintings, and that something evil may have lurked there. There was seemingly [something going on in his personal life](http://www.firstthings.com/onthesquare/2010/06/thomas-kinkadersquos-cottage-fantasy)[ as well](http://www.firstthings.com/onthesquare/2010/06/thomas-kinkadersquos-cottage-fantasy). The theme is this: they look nice, they portray peace, but something is not natural, not right about them. After all, Satan appeared as an angel of light (2 Cor 11:14) . You can't keep a peace that does not exist. To keep a false peace is to insulate and protect evil. My family has kept horrors - true horrors - secret from the world for at least 5 generations. To break the silence has resulted in division of the family of biblical proportions. I've been disavowed, disinherited, broken and slandered by my own flesh and kin. It's the evil that pelts you daily with toxic guilt, toxic shame, and misdirected anger. The wages of which are passed on to each generation until someone throws everything away to fight it, to resist, at all costs. That is the nature of evil. Invisible as long as you go along with it. So let Cthulhu rise from the sea, or Congress, with all the strategy of a game of peek-a-boo. Such commanding display are pawns to distract us from the real terror, the true horror, that lies within. Look, there it is; don't bother with your own knowledge of evil. Others are worse, behold them on the television! Just because there is no camera on you, doesn't mean you aren't capable of ruining lives and souls - actively or passively. I can tell you from experience - experience many of you share, but that we seldom if ever talk about - you don't know just how much faith is a gift, or what courage you have, until faced with the true horror in your own life. That evil, that calling to keep a deceptive peace and to remain quiet, is what you have been called to fight first and foremost. For such a time as this were you born. Pray for Revolution. 

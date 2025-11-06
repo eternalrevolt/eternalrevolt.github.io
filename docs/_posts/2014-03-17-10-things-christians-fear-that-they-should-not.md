@@ -1,0 +1,22 @@
+---
+id: 124
+title: '10 Things Christians Fear That They Should Not'
+date: '2014-03-17T10:00:09-04:00'
+author: 'Paul Nowak'
+layout: post
+guid: 'http://eternalrevolution.com/?p=124'
+permalink: /10-things-christians-fear-that-they-should-not/
+
+categories:
+    - Faith
+tags:
+    - fear
+    - idolotry
+    - trust
+---
+
+ It is human to be afraid. Everyone is afraid of something (or somethings). Several fears are in fact common to a lot of people.  Fear motivates us to change. Whether it is some learned trait for survival or a psychological reflex to avoid danger, when we act on our fears we make a choice to change our behavior, our circumstances, and even our lives. In other words, what you fear, determines what you worship. If you are afraid of being poor, you tend to idealize financial security. You worry about not having enough. You stress over unexpected costs. You feel more comfortable, more secure, with a certain dollar amount in your bank account. Your mood is a function of how much money you have and how much you feel you need at any given time. This is what the idolization of money looks like - you need not be wealthy to be a miser. As Christians, we are told over and over in the Bible to not have fear. To put it more positively, we are told to have "fear of the Lord." Not necessarily or solely fear of punishment from God, but a respectful fear that drowns out all other worldly fears. A fear of separation from He who is your security, and your foundation. Here are just a few common fears that we Christians need to eliminate in ourselves, for they are symptoms of putting some other worldly good above our faith in God. There is a single verse I have associated with each one, but of course there are many more that could fit each, and some verses address more than one type of fear.
+ 
+ **Financial Loss** *Poverty. Job loss. Financial hardship. Not having enough money for college for your kids. Not having enough money for retirement. Not having enough for any reason.*  The Lord sends poverty and wealth; he humbles and he exalts. 1 Samuel 2:7 **Pain** *Suffering. Loss of Comfort.* Count it all joy, my brothers, when you meet trials of various kinds, for you know that the testing of your faith produces steadfastness. And let steadfastness have its full effect, that you may be perfect and complete, lacking in nothing. James 1:2-4 **Illness** *Sickness. Fatigue. Poor health. Cancer. Obesity. Disease. Germs.* So do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ For the pagans run after all these things, and your heavenly Father knows that you need them. But seek first his kingdom and his righteousness, and all these things will be given to you as well. Matthew 6:31-33 **Death** *Dying. Death of yourself. Death of a loved one. The dead.* Since therefore the children share in flesh and blood, he himself likewise partook of the same things, that through death he might destroy the one who has the power of death, that is, the devil, and deliver all those who through fear of death were subject to lifelong slavery. Hebrews 2:14-15 **The Future** *What will be or will not be. Being prepared. Change.* Therefore do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own. Matthew 6:34 **The Past** *Mistakes catching up with you. Family shame being exposed. Loss of time.* But for that very reason I was shown mercy so that in me, the worst of sinners, Christ Jesus might display his immense patience as an example for those who would believe in him and receive eternal life. 1 Timothy 1:16 **Judgement** *Of others. Of God.* There is therefore now no condemnation for those who are in Christ Jesus. Romans 8:1 **Separation** *Loss of friends. Loss of family. Loneliness.* The Lord is near to the brokenhearted and saves the crushed in spirit. Psalm 34:18 **Evil** *Bad things. People that mean you harm. Injustice. Evil spirits.* Even though I walk through the valley of the shadow of death, I will fear no evil, for you are with me; your rod and your staff, they comfort me. Psalm 23:4 **The Devil** And He said to them, "I was watching Satan fall from heaven like lightning. Behold, I have given you authority to tread on serpents and scorpions, and over all the power of the enemy, and nothing will injure you." Luke 10:18-19 
+ 
+ Why then do you continue to be afraid? Seek to root out your fears, lest they drive you away from your relationship with God and weaken your faith.
