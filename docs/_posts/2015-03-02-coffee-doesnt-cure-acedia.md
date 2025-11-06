@@ -1,6 +1,6 @@
 ---
 id: 591
-title: 'Coffee Doesn&#8217;t Cure Acedia'
+title: 'Coffee Doesn't Cure Acedia'
 date: '2015-03-02T21:16:15-05:00'
 author: 'Paul Nowak'
 layout: post
